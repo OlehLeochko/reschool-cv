@@ -1,1 +1,1 @@
-### https://OlehLeochko.github.io/rsschool-cv/index.html
+### https://OlehLeochko.github.io/rsschool-cv/cv
